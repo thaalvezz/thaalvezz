@@ -8,6 +8,6 @@ Meu nome é Thais Alves
 
   ## Você pode entrarem contato comigo 📫
 
-  alurastartestudante@email.com
+  0001115498459@al.educacao.sp.gov.br
 
-  @alurastartestudante
+  @thaalvezz
